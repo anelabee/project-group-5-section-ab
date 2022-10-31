@@ -14,7 +14,7 @@ Jiacheng Gong([jchengg\@uw.edu](mailto:jchengg@uw.edu)
 
 Ferryn Drake ([fdrake\@uw.edu](mailto:fdrake@uw.edu)
 
-Anneliese Boucher
+Anneliese Boucher ([anelabee@uw.edu](mailto:anelabee@uw.edu)
 
 Benjamin Po
 
